@@ -2,6 +2,7 @@
 
 
 Background:
+
 As a new brand in the sports apparel market, we are looking for potential endorsers in NBA. Due to our tight budget, we want a player who can estabilish a long term relationship at relatively low cost rahter than sign a contract with players who already have endorsements.
 
 
